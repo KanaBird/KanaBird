@@ -1,12 +1,15 @@
 🌺  **> INTRODUCTRY**![diluc-genshin-impact](https://github.com/KanaBird/KanaBird/assets/163080062/c546e668-f64a-4454-89c5-7002bbcb1f5f)
-✨ -- ___Thank you___ for visiting my profile!
+✨ -- ___Thank you___ for visiting my profile!   ![Heartt](https://github.com/KanaBird/KanaBird/assets/163080062/698ae9d3-cdf9-43ed-9fad-26b165441f9f)
 
 ![a-sweet-smile](https://github.com/KanaBird/KanaBird/assets/163080062/7b74d427-1b9d-410f-9643-8aeae9a85a08)                 
 
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
 
-![diluc-genshin-impact](https://github.com/KanaBird/KanaBird/assets/163080062/f758d00c-341f-43c7-a552-342ed02de4e6)  🌺 ***-- Brief /***    My name is Kana, I love doing creative-work such as art, editing, designing, and more. I have been doing videos for over 6 years now, alongside artistic work such as drawing in general. The programs that I use are listed in my Carrd bio linked in my socials, I also have a list of extra games and/or specific types of games that I play there on platforms.
+![diluc-genshin-impact](https://github.com/KanaBird/KanaBird/assets/163080062/f758d00c-341f-43c7-a552-342ed02de4e6) ![Rosee](https://github.com/KanaBird/KanaBird/assets/163080062/902e14b1-65da-4fc5-9dc6-fcde214a10b6)
+ ***-- Brief /***    My name is Kana, I love doing creative-work such as art, editing, designing, and more. I have been doing videos for over 6 years now, alongside artistic work such as drawing in general. The programs that I use are listed in my Carrd bio linked in my socials, I also have a list of extra games and/or specific types of games that I play there on platforms.
 
+![Wings](https://github.com/KanaBird/KanaBird/assets/163080062/9c36e875-152d-4f6c-a0e9-a6f60e523051)
+        ***LOGDATE 3.11.24***
 - 👋 Aloha, I’m @KanaBird!
 - 👀 I love doing art, playing games, and editing videos.
 - 🌱 **[Games]** ROBLOX & Minecraft (others: RecRoom, Genshin Impact, OSU, Cookie Run Kingdom, Sky: Children of Light, and more.)
