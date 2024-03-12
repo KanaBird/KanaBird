@@ -1,10 +1,10 @@
 🌺  **> INTRODUCTRY**
 
-✨ -- Thank you for visiting my profile!
+✨ -- ___Thank you___ for visiting my profile!
 
 - 👋 Aloha, I’m @KanaBird!
 - 👀 I love doing art, playing games, and editing videos.
-- 🌱 [Games] ROBLOX & Minecraft (others: RecRoom, Genshin Impact, Cookie Run Kingdom, Sky: Children of Light.)
+- 🌱 **[Games]** ROBLOX & Minecraft (others: RecRoom, Genshin Impact, Cookie Run Kingdom, Sky: Children of Light.)
 - 💞️ Art, editing, gaming, writing, designing, etc.
 - 📫 -- I do art and GFX commissions! 
 - 😄 Pronouns: Cheese (/j)
