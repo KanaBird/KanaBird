@@ -1,36 +1,60 @@
-🌺  **> INTRODUCTRY**![diluc-genshin-impact](https://github.com/KanaBird/KanaBird/assets/163080062/c546e668-f64a-4454-89c5-7002bbcb1f5f)
-✨ -- ___Thank you___ for visiting my profile!   ![Heartt](https://github.com/KanaBird/KanaBird/assets/163080062/698ae9d3-cdf9-43ed-9fad-26b165441f9f)
-
-![a-sweet-smile](https://github.com/KanaBird/KanaBird/assets/163080062/7b74d427-1b9d-410f-9643-8aeae9a85a08)                 
-
-▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
-
-![diluc-genshin-impact](https://github.com/KanaBird/KanaBird/assets/163080062/f758d00c-341f-43c7-a552-342ed02de4e6) ![Rosee](https://github.com/KanaBird/KanaBird/assets/163080062/902e14b1-65da-4fc5-9dc6-fcde214a10b6)
- ***-- Brief /***    My name is Kana, I love doing creative-work such as art, editing, designing, and more. I have been doing videos for over 6 years now, alongside artistic work such as drawing in general. The programs that I use are listed in my Carrd bio linked in my socials, I also have a list of extra games and/or specific types of games that I play there on platforms.
-
-![Wings](https://github.com/KanaBird/KanaBird/assets/163080062/9c36e875-152d-4f6c-a0e9-a6f60e523051)
-        ***LOGDATE 3.11.24***
-- 👋 Aloha, I’m @KanaBird!
-- 👀 I love doing art, playing games, and editing videos.
-- 🌱 **[Games]** ROBLOX & Minecraft (others: RecRoom, Genshin Impact, OSU, Cookie Run Kingdom, Sky: Children of Light, and more.)
-- 💞️ Art, editing, gaming, writing, designing, etc.
-- 📫 -- I do art and GFX commissions! 
-- 😄 Pronouns: Cheese (/j)
-- ⚡ Fun fact: Birds.
-
-
-![kaeluc-kaeya](https://github.com/KanaBird/KanaBird/assets/163080062/21dfa920-a6df-4c42-90df-0437b2834f7d)
-
-▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
-
-...
-
-![floydleechgf-five](https://github.com/KanaBird/KanaBird/assets/163080062/a4e07688-4b7c-4387-8f93-3ba2a02ef9d7)
+<p align="center">
+  <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2a8be0ed-e28e-46d6-ad86-27f5329675ed"  <h1 align="center"> <strong> . . . There are balloons floating all over the place. It's so colorful . . .</strong> </h1> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2b1332e5-2e1b-4ecc-9aa9-4a6d24b8e01e"<p align="center"> 
 
 
 
+&nbsp; 
 
-<!---
-KanaBird/KanaBird is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![tumblr_d0ca75e32f13f8b3c94f02f5a6ac4b3e_b00b5e31_1280](https://github.com/undeadlost/KanaBird/assets/160256094/d53a6617-58f4-4f5a-8cbe-6c80e18a10cd)
+
+
+&nbsp; 
+
+
+<p align="center">
+ <strong>★ . Kana, She/Her <img width="30" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/8ade08c5-1e91-4344-bf98-75786c680d3f" </strong> 
+</p>
+
+&nbsp; 
+
+
+
+<p align="center">
+  <img width="900" height="600" src="https://github.com/undeadlost/KanaBird/assets/160256094/80816c32-b720-4975-9d15-19e2f036aebd">
+</p>
+
+&nbsp; 
+
+
+&nbsp;  
+ 
+<p align="center">
+ <strong>I'm a car and don't really interact because I'm a car </strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/de1c181b-7efa-421b-b2b0-96e9f37e03eb"
+</p>
+<p align="center">
+<em>PLEASE DON'T BE AFRAID OF ME!!! (DO) I DONT BITE (DO) </em> <img width="30" height="30" src="https://github.com/undeadlost/KanaBird/assets/160256094/f0d8fa13-2032-4b99-87b0-589f244e1bf5"
+</p>
+<p align="center">
+<strong> I love doing art, playing games, and editing videos.</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2670675e-02a8-4f04-b6e6-d909c6322f79"
+</p>
+<p align="center">
+<strong> I have a <a href= "https://kanabirb.carrd.co/" >car </a> if you want to see more about me!</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/8b7a9b12-e8ba-40e0-b50a-652ff906939a"
+</p>
+
+&nbsp;
+
+![tumblr_dfb1f21b1e7ac4061a64443f0d12563e_b17088d3_1280](https://github.com/undeadlost/KanaBird/assets/160256094/0d6c1b82-ff4f-4f5f-9ac9-aa3e56b86dce)
+
+
+&nbsp;
+
+
+<p align="center">
+<i>creds to  <a href= "https://www.tumblr.com/vashwoodyuri" >vashwoodyuri </a> For graphics & dividers!!</i>
+</p>
+<p align="center">
+<i>creds to <a href= "https://ouija.crd.co/#" >ouija </a> , <a href= "https://goldenkamuy.crd.co/#" >golden </a> for stamps!!</i>
+</p>
+<p align="center">
+<i>made by <a href= "https://github.com/undeadlost" >Kein </a> for Kana!!</i>
+</p>
