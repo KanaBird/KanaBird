@@ -47,7 +47,9 @@
 
 
 &nbsp;
+![tumblr_5c4dbe27d44ee92012fc8894da12c0a3_4d69d880_2048](https://github.com/undeadlost/KanaBird/assets/160256094/45b6be42-dc03-472d-a268-a1867d9563a5)
 
+&nbsp;
 
 <p align="center">
 <i>creds to  <a href= "https://www.tumblr.com/vashwoodyuri" >vashwoodyuri </a> For graphics & dividers!!</i>
