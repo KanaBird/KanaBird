@@ -52,5 +52,6 @@
 <p align="center">
 <i> Kein kein kein kein kein kein kein
 </p>
-  CREDITING KEIN FOR THE FORMATTING OF THIS CAUSE I NEVER CHANGED IT @undeadlost
-</p>
+<p align="center">
+<i>CREDITING KEIN FOR THE FORMATTING OF THIS CAUSE I NEVER CHANGED IT @undeadlost
+
